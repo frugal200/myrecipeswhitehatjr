@@ -1,0 +1,1 @@
+These basic ingredients for baking a cake are; flour, eggs, fat (usually butter), sugar, salt, a form of liquid (usually milk), and leavening agents (such as baking soda).
